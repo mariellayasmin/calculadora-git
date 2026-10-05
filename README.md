@@ -1,0 +1,1 @@
+curse-git.lovable.app
